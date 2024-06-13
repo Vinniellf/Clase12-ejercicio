@@ -1,1 +1,0 @@
-# Clase12-ejercicio
